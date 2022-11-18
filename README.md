@@ -19,6 +19,10 @@ This is a line
 
 
 
+
+![](https://www.leparisien.fr/resizer/zkKDiadbk8uJzSrxhv1xZ96g07Q=/932x582/cloudfront-eu-central-1.images.arcpublishing.com/leparisien/JC5VXNGCHFGOHCHZXI6HCTRV5E.jpg)
+
+
 En France, l’insécurité fait toujours l’actualité dans les journaux et dans les plateaux de télévisions. En 2021, elle est classée comme la deuxième préoccupation des Français d’après [la dernière étude](https://www.europe1.fr/societe/la-delinquance-est-la-deuxieme-preoccupation-des-francais-en-2021-4100114) du ministère de l’Intérieur. Si on voit les chiffres publiés de la délinquance par le ministère de la même année, on peut constater qu’il y a une tendance haussière, comme l’augmentation de 33% les plaintes pour les violences sexuelles.Parallèlement, les violences commises dans les transports en commun ont également rebondi après avoir connu déclin pendant la crise sanitaire.
 
 Dans ce climat d’insécurité et une menace des attentats terroristes qui plane toujours dans le pays, le thème de la sécurité s’est imposé parmi les principaux enjeux dans les élections régionales de 2021 bien qu’il ne relève pas de leur compétences. Elle est également utilisée comme la raison pour renforcer la police municipale. Il n’est donc pas étonnant que pendant la dernière présidentielle, cette thématique ait pris une ampleur inédite durant la campagne où tous les candidats ont fait des propositions qui remettent en cause parfois l’État de droit. En outre, la France fait face à de nouveaux types de menaces sous la forme de cyberattaques. Comme les attentats, ces types d’attaques peuvent causer des dégâts considérables dès lors qu’il s’agit des attaques aux secteurs vitaux tels que les hôpitaux ou l’énergie. Depuis l’aube de la crise sanitaire, il y a une forte augmentation des cyberattaques aux entreprises, les services publics et les collectivités territoriales où ces types de menaces nombre a quintuplé. 
